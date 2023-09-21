@@ -14,9 +14,4 @@ Bem vindo ao meu perfil!
 -  📫guitaborda28882@gmail.com
 
 
-  ![]()
-  https://tenor.com/pt-BR/view/the-rock-eyebrow-the-rock-sus-sus-eyebrow-gif-26041777
-  
-  
-
-
+  ![](https://media.tenor.com/EkTCtB-0hncAAAAd/the-rock-eyebrow-the-rock-sus.gif)
