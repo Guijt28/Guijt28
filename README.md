@@ -4,7 +4,7 @@ Bem vindo ao meu perfil!
 - Estudo no Alura 📖
 - Estudo JS 💻
 - Sou designer gráfico 📈
-- Eitor de video/motion graphics 🎥
+- Editor de video/motion graphics 🎥
 
  Entre em contato:
   
