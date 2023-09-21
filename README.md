@@ -8,10 +8,10 @@ Bem vindo ao meu perfil!
 
   ***entre em contato comigo
   
-  📱55 (42) 9 9974-0140
-  Instagram: @guij_taborda
-  Behance: https://www.behance.net/guitaborda
-  📫guitaborda28882@gmail.com ***
+-  📱55 (42) 9 9974-0140
+-  Instagram: @guij_taborda
+-  Behance: https://www.behance.net/guitaborda
+-  📫guitaborda28882@gmail.com ***
   
   
 
