@@ -1,4 +1,4 @@
-Bem vindo ao meu perfil!
+### Bem vindo ao meu perfil!
 
 - meu nome é _Guilherme_ José Taborda 🥇 
 - Estudo no Alura 📖
@@ -6,7 +6,7 @@ Bem vindo ao meu perfil!
 - Sou designer gráfico 📈
 - Editor de video/motion graphics 🎥
 
- Entre em contato:
+### Entre em contato:
   
 -  📱55 (42) 9 9974-0140
 -  Instagram: @guij_taborda
