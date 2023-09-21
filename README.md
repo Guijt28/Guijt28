@@ -12,6 +12,3 @@
 -  Instagram: @guij_taborda
 -  Behance: https://www.behance.net/guitaborda
 -  📫guitaborda28882@gmail.com
-
-
-  ![](https://media.tenor.com/EkTCtB-0hncAAAAd/the-rock-eyebrow-the-rock-sus.gif)
